@@ -2,6 +2,8 @@
 
 I am a **proactive and curious learner** with a strong interest in **full-stack development** and **video editing**. As a student passionate about building projects, I enjoy working collaboratively, communicating clearly, and continuously growing both personally and professionally.
 
+Wanna See MY [Portfolio](https://www.anishdangol121.com.np) 🤔🤔
+
 ---
 ## 💼 Technical Skills
 
